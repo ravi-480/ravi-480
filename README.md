@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects related to web development or any interesting projects that involve solving real-world problems.
 
-📫 How to reach me: Feel free to reach out to me via email at kumawatravi9426@gmail.com or connect with me on LinkedIn: [Ravikumar Kumawat](https://www.linkedin.com/in/ravi-kumawat-965a3424a/).
+📫 Feel free to reach out to me via email at kumawatravi9426@gmail.com or connect with me on LinkedIn: [Ravikumar Kumawat](https://www.linkedin.com/in/ravi-kumawat-965a3424a/).
 
 😄 Pronouns: He/Him
 
