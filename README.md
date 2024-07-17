@@ -1,4 +1,4 @@
-👋 Hi, I’m @ravi-480
+👋 Hi, I’m Kumawat Ravi
 
 👀 I’m interested in frontend and backend web development, problem-solving, and learning new technologies.
 
@@ -8,6 +8,4 @@
 
 📫 Feel free to reach out to me via email at kumawatravi9426@gmail.com or connect with me on LinkedIn: [Ravikumar Kumawat](https://www.linkedin.com/in/ravi-kumawat-965a3424a/).
 
-😄 Pronouns: He/Him
 
-⚡ Fun fact: I enjoy experimenting with new recipes in my free time and am passionate about cooking as much as I am about coding!
